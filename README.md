@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @clair3chung
+- 👀 I’ve lived in so many places! Taiwan / China / USA (IL | CO | CA | WA)
+- 🌱 I’m currently learning how to code!
+- 📫 You can reach me at claire.chung222@gmail.com
